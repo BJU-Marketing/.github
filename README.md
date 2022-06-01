@@ -1,1 +1,1 @@
-# .github
+# Bob Jones University - Marketing Department
